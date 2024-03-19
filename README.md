@@ -8,6 +8,7 @@ Rules
 3. toxicity/ hate speech: no being racist, homophobic, or toxic.
 4. Dont be a annoying 
 5. Age requirement is 13+ for this game
+6. Please note that the server playfab may change time to time so you will lose your cosmetics
 
 Links
 https://discord.gg/RFjuTCHPAF
