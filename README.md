@@ -9,7 +9,7 @@ Rules
 4. Dont be a annoying 
 5. Age requirement is 13+ for this game
 6. Please note that the server playfab may change time to time so you will lose your cosmetics
-7. Do NOT exploit our game's playfab or discord server we have the right to freely do what we are doing
+7. Do NOT exploit/hack our game's playfab or discord server we have the right to freely do what we are doing
 
    
 Links
