@@ -15,7 +15,7 @@ Rules
 Links
 https://discord.gg/RFjuTCHPAF
 
-Discord rules
+# Discord rules
 *Other Server rules* (There was 2 rules channels lol)
 
 1. Toxicity/ Hate speech: Do not be racist or homophobic, you will be banned if you break this rule.
