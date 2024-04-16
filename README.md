@@ -13,7 +13,7 @@ Rules
 
    
 Links
-https://discord.gg/RFjuTCHPAF
+https://discord.gg/2KEaQRKYXD
 
 # Discord rules
 *Other Server rules* (There was 2 rules channels lol)
